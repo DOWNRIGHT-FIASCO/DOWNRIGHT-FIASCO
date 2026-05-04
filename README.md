@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/c484f358-5748-40a0-9e92-e2bb102e811d)
+![image](https://github.com/user-attachments/assets/b535b140-f66f-42bd-a9a2-ecec3fbf3944)
 
 <!--
 **DOWNRIGHT-FIASCO/DOWNRIGHT-FIASCO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
